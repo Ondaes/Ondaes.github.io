@@ -16,6 +16,7 @@ Marcel Cohen, Le Grand Paon-de-nuit, Gallimard, 2014
 ![IMG_1119](https://github.com/Ondaes/Ondaes.github.io/assets/160611674/a2328cf4-b191-42c8-85c9-2c93538cae75)
 
 https://vimeo.com/933193001?share=copy
-https://youtu.be/YC35V9ZMyVE?si=ftGK7W-tb-j4rh2S   
+[https://youtu.be/YC35V9ZMyVE?si=ftGK7W-tb-j4rh2S]
+Le Douro est un fleuve qui prend sa source en Espagne et se jette dans l'Atlantique à Porto (grv stylé)
 [ondaes 1.pdf](https://github.com/Ondaes/Ondaes.github.io/files/15140502/ondaes.1.pdf)
 [ondaes 2 V.pdf](https://github.com/Ondaes/Ondaes.github.io/files/15140505/ondaes.2.V.pdf)

@@ -10,10 +10,10 @@ https://github.com/Ondaes/Ondaes.github.io/assets/160611674/310f21ca-f65e-49cf-8
 
 
 
-## 観音 (かんのん) ・ Kannon
+# 観音 (かんのん) ・ Kannon
 
-# 観 voir examiner
-# 音 son
+## 観 voir examiner
+## 音 son
 
 
 

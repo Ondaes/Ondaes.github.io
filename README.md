@@ -28,8 +28,7 @@ Marcel Cohen, Le Grand Paon-de-nuit, Gallimard, 2014
 
 ![IMG_1119](https://github.com/Ondaes/Ondaes.github.io/assets/160611674/a2328cf4-b191-42c8-85c9-2c93538cae75)
 
-![![image](https://github.com/Ondaes/Ondaes.github.io/assets/160611674/ecde2366-5669-453c-9784-7da5f422cfb4)
-](https://vimeo.com/933193001?share=copy)
+![miniature de la video](https://vimeo.com/933193001?share=copy)
 
 [https://youtu.be/YC35V9ZMyVE?si=ftGK7W-tb-j4rh2S]
 

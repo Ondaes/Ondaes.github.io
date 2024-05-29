@@ -32,11 +32,21 @@ Marcel Cohen, Le Grand Paon-de-nuit, Gallimard, 2014
 
 [https://youtu.be/YC35V9ZMyVE?si=ftGK7W-tb-j4rh2S]
 
-Le Douro est un fleuve qui prend sa source en Espagne et se jette dans l'Atlantique à Porto (grv stylé)
+Le Douro est un fleuve qui prend sa source en Espagne et se jette dans l'Atlantique à Porto 
 
 [ondaes 1.pdf](https://github.com/Ondaes/Ondaes.github.io/files/15140502/ondaes.1.pdf)
 
 [ondaes 2 V.pdf](https://github.com/Ondaes/Ondaes.github.io/files/15140505/ondaes.2.V.pdf)
 
 ![IMG_2153](https://github.com/Ondaes/Ondaes.github.io/assets/160611674/ad80f46e-27e4-49dd-b460-c7a716141631)
+
+Trois mouvements sur le fleuve Tejo :
+Lisbonne, avec quelques amis, nous sommes assis à la l’embouchure du fleuve Tejo à l’endroit où il se jette sans l’océan.
+Les voiliers touristiques de location font demi-tour devant une frontière invisible entre le fleuve et la mer... On s’amuse à deviner le moment où ils rebrousseront chemin. 
+Le cargo, lui, a franchi la ligne pour poursuivre sa route.
+Un jet ski qui prend les bonnes vagues, cool.
+
+![IMG_2554](https://github.com/Ondaes/Ondaes.github.io/assets/160611674/90ba8294-cb96-47e5-88c5-4dff8d59c6ea)
+![IMG_2555](https://github.com/Ondaes/Ondaes.github.io/assets/160611674/8e218366-7afc-46d2-bda9-cfd40d9a2277)
+![IMG_2553](https://github.com/Ondaes/Ondaes.github.io/assets/160611674/3523d376-ee5b-4993-875d-261f42521c3c)
 

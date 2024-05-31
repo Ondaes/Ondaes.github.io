@@ -50,7 +50,6 @@ Un jet ski qui prend les bonnes vagues, cool.
 ![IMG_2555](https://github.com/Ondaes/Ondaes.github.io/assets/160611674/8e218366-7afc-46d2-bda9-cfd40d9a2277)
 ![IMG_2553](https://github.com/Ondaes/Ondaes.github.io/assets/160611674/3523d376-ee5b-4993-875d-261f42521c3c)
 
-![Ponge_Berges_de_la_Loire](https://github.com/Ondaes/Ondaes.github.io/assets/160611674/f86eb240-d312-48d0-ad72-a7aa960ed34a)
-
 https://www.youtube.com/watch?v=NSt2pA5IWqE
 
+[Ponge_Berges_de_la_Loire.pdf](https://github.com/user-attachments/files/15512183/Ponge_Berges_de_la_Loire.pdf)
